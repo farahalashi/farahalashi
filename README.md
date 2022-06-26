@@ -4,7 +4,7 @@
   ---
 *  👩‍💻 I'm  a Computer Science Enginnering
 *  🌍 Palestinian Nationality
-*  💼 Any freelance work? do reach, [E_mail ](https://www.google.com) 
+*  💼 Any freelance work? do reach, [Email ](mailto:farahemad20001@gmail.com) 
 *  💬  Ask me about anything, i am happy to help
 ---
 ###  Skills
