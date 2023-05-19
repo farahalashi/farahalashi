@@ -1,5 +1,5 @@
 ## Hi I'm Farah El Ashi 😃
-  UI/UX designer & Web developer
+  UI/UX designer 
   
   ---
 *  👩‍💻 I'm  a Computer Science Enginnering
